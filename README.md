@@ -1,2 +1,0 @@
-# axelromano.github.io
-# elpopoma
